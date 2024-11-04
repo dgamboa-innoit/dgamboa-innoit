@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Daniel Gamboa Rojas
+Hi, I’m Daniel Gamboa Rojas ✌️
